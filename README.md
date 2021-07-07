@@ -1,0 +1,1 @@
+wangyeristorante-static
